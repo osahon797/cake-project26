@@ -1,0 +1,1 @@
+stir together dry ingredients, combine the butter and sugar, add eggs, pour batter into pans and bake.
